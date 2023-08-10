@@ -1,0 +1,2 @@
+# One_Word_Database_Mirror_txt_version
+仅用于储存，版权归属于相关作者
